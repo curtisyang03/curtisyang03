@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Curtis!
+- 👀 I’m interested in all things technology - ranging from the latest consumer devices to emerging software trends. 
+- 🌱 I’m currently improving my technical skills to complement my background as an aspiring product/program manager.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: https://www.linkedin.com/in/curtisyangg or email via curtisyang03@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I can solve a rubiks cube in 10 seconds!
